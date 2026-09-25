@@ -2,7 +2,7 @@
 
 **Administrative Professional | Tech & Design Enthusiast**  
 📍 Davao City, Philippines  
-📧 montonjane@gmail.com or cagadas.jane30@gmail.com | 💼 [LinkedIn](https://linkedin.com/in/yourprofile) | 🌐 [Portfolio Site](https://yourusername.github.io)
+📧 montonjane@gmail.com or cagadas.jane30@gmail.com | 💼 [LinkedIn](https://linkedin.com/in/yourprofile) | 🌐 https://github.com/montonjane-gif)
 
 ---
 
